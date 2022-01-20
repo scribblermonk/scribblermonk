@@ -1,1 +1,1 @@
-wants to study bio-informatics
+studies bio-informatics
